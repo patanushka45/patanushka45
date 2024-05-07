@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @patanushka45 aka ANUSHKA PATNAIK
+- 🌱 I’m currently learning PYTHON 
+- 📫 How to reach me patnaikanushka79@gmail.com
